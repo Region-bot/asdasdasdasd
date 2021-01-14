@@ -1,2 +1,1 @@
-# asdasdasdasd
-sA
+WENSAMİTA NEİVA - BOTLİST BOTU
